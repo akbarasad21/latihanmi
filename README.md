@@ -1,1 +1,4 @@
 # latihanmi
+woiiiii
+asasasasasa
+asasasasas
